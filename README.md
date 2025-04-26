@@ -11,6 +11,6 @@
 
 ## Hecho por:
 
-###Ana García
+###Rafael Rojas
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: [https://www.linkedin.com/school/aluracursos/](https://www.linkedin.com/in/rafael-y-rojas-nieves-839881166/edit/forms/project/new/?profileFormEntryPoint=GUIDANCE_CARD)
